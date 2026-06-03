@@ -74,4 +74,3 @@ Over the next 180 days, I will:
 
 ---
 
-*"Consistency beats intensity. One day at a time."*
